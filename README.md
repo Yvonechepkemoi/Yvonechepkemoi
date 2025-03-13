@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yvonechepkemoi
 - 👀 I’m interested in listening to music
-- 🌱 I’m currently learning playing violin
-- 💞️ I’m looking to collaborate on painting
+- 🌱 I’m currently learning to play the violin
+- 💞️ I’m looking to collaborate on guydangerous360@gmail.com
 - 📫 How to reach me chepkemoisydney23@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: i can lick my elbow
